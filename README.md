@@ -1,1 +1,1 @@
-#  https://junizapermatanugraheni.github.io/kulinerJogja.github.io/
+#  kulinerJogja.github.io
